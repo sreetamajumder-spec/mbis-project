@@ -84,7 +84,7 @@ I am a Business Analyst with a strong background in customer experience and oper
 ### Excel Books Pvt. Ltd., Bangalore, India  
 **Sr. Business Development Executive** (Aug 2012 - Apr 2013)
 - Resolved client concerns, improving satisfaction and loyalty
-- Negotiated long-term agreements with new clients
+- Negotiated long-term agreements with new clients.
 
 ---
 
