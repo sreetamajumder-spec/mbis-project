@@ -2,7 +2,8 @@
 
 Business Analyst | Business Manager | Data-Driven Problem Solver  
 Kolkata, India  
-[LinkedIn](https://www.linkedin.com/in/sreeta-majumder-9683582a) • sreeta.majumder@gmail.com • +91-7749995784
+[LinkedIn](https://www.linkedin.com/in/sreeta-majumder-9683582a) 
+sreeta.majumder@gmail.com • +91-7749995784
 
 ---
 
